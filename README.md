@@ -5,9 +5,8 @@
 
 - 🔭 I'm Mohammad Fitrah Ramadhan Lamusu but just call me **Agra**
 - 👨🏻‍🎓 I am a <a href="http://hacktiv8.com"><img src="https://camo.githubusercontent.com/1d641c26180ba7746cf8b6d3b38498b59c95033a780b0a7c0ed87fedec1810fa/68747470733a2f2f676c6f62616c2d75706c6f6164732e776562666c6f772e636f6d2f3566306435336330343261396564363238386465376638642f3566363831353064623532376465323565383263383666315f4861636b746976382532306c6f676f253230686f72697a6f6e74616c2532303031253230626c61636b2e706e67" width="60px"/></a> graduate.
-- 🤔 Currently I'm looking for job to elaborate my skills and gain experiences.
 - 📫 Feel free to reach me at **ftrahl@gmail.com**
-- 📄 Get to know about my experiences and projects [Click Here](https://drive.google.com/file/d/1_BghWU0aSFd6j-Zt70whC_pBRGp2KCFI/view?usp=sharing)
+- 📄 Get to know about my experiences and projects [Click Here](https://gratatouille.my.id)
 
 - ⚡ Fun fact **I was live in Japan for 2 years.**
 
